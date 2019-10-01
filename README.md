@@ -1,8 +1,8 @@
 
-# LabReviewWithJihee
 
-## Elina youre so sweet
+#gitnub is the worst
+##Hello my name is ELina
+##sorry I deleted everything you wrote
+##HAHAHHAHA
+hey
 
-## JIHEE A LOVE YOU YOU ARE THE BEST
-
-HEY Elina I'm Jihee I'm so hungry
